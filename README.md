@@ -1,10 +1,8 @@
 # i have no idea what im doing, and thats okay! 💖
 
-I'm tenth/skye/quirky and i use she/her pronouns which are cool :)
+I'm Ashley and i use she/her pronouns which are cool :)
 
-I very occasionally work on some minor projects here and there in my own time, and i have this account for if i wanna contribute or post up some cool things im doing.
-
-I spend my time playing games, attempting to pick up skills, and learning from my errors :]
+I'm here to maybe learn a thing or two. I have intrests in web design and that junk, but i might get a bit interested in other stuffs!
 
 <!---
 QuirkyFennec/QuirkyFennec is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
