@@ -1,10 +1,6 @@
-# i have no idea what im doing, and thats okay! 💖
+# Look! A github account with nothing!
 
-I'm Ashley! Your local cat here to probably do nothing, but it's nice to be here in the off chance i do something!
-
-Don't expect anything on here for a while though.
-
-:3
+Hi! You've found this account! There really isn't much here! Probably wont for a long while, mostly just have this account just in case! 
 
 <!---
 QuirkyFennec/QuirkyFennec is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
